@@ -1,0 +1,1 @@
+# mechanics-second-task-C
